@@ -11,4 +11,4 @@ La imagen de arriba muestra a *Little My* o *La pequeña My* uno de los personaj
 
 *Little My* es fogosa e irritable, pero también alegre y amistosa. Las cosas pequeñas pueden molestarla fácilmente, pero nunca lo dice en serio a propósito. A veces, cuando los demás están siendo demasiado sentimentales, los trae rápidamente a la tierra con sus agudas observaciones.
 
-Para conocer un poco más de esta maravillosa pequeñilla puedes dar click en el video que dejo aquí [https://youtu.be/mfOKsksgu4Y]
+Para conocer un poco más de esta maravillosa pequeñilla puedes dar click en el video que dejo aquí https://youtu.be/mfOKsksgu4Y
